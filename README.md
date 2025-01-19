@@ -1,6 +1,7 @@
 [Deutsch]
 
 ABOUT ME
+
 Illustrator, Grafik-Designer und Schildkrötenlover :)
 
 - Kann besonders putzig zeichnen
@@ -19,6 +20,7 @@ Programm Kenntnisse:
 [English]
 
 ABOUT ME
+
 Illustrator, graphic designer and turtle lover :)
 
 - Can draw particularly cutely
