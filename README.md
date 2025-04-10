@@ -1,1 +1,1 @@
-Illustrator, Grafik-Designer und Schildkrötenlover :)
+Illustrator und Grafik-Designer
